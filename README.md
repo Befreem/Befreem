@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Befreem
+- 👀 I’m a computer science student
+- 📫 How to reach me: freemanbe91@uwosh.edu
